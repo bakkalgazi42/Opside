@@ -8,7 +8,7 @@
 
 ![image](https://github.com/ruesandora/Opside/assets/101149671/eb0f7403-ba59-46b6-afdd-e138cf82fce3)
 
-> Ayrıca opside'da oluşturduğumuz 12 kelimemizi de sakın kaybetmeyelim, yüksek ihtimalle ödüllerimiz burada olacak.
+> Ayrıca opside'da oluşturduğumuz 24 kelimemizi de sakın kaybetmeyelim, yüksek ihtimalle ödüllerimiz burada olacak.
 
 > ..
 
